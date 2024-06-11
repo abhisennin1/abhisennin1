@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on optimising businesses
 - 📫 How to reach me: https://linkedin/in/abhirat-shinde
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Tech can enable a lot more stuff for you than you think
+- ⚡ Fun fact: Latin dancing originated in Cuba not Spain
 
 <!---
 abhisennin1/abhisennin1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
