@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @abhisennin1
+- 👋 Hi, I’m Abhi
 - 👀 I’m interested in leveraging tech for enteprises
-- 🌱 I’m currently learning AI
-- 💞️ I’m looking to collaborate on optimising businesses
 - 📫 How to reach me: https://linkedin/in/abhisennin
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Latin dancing originated in Cuba not Spain
