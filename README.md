@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Abhi
 - 👀 I’m interested in leveraging tech for enteprises
-- 📫 How to reach me: https://linkedin/in/abhisennin
+- 📫 How to reach me: https://linkedin/in/abhiratshinde
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Latin dancing originated in Cuba not Spain
 
